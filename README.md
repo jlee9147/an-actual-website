@@ -1,2 +1,2 @@
 # an-actual-website
-theme: Minimal
+theme: minimal
