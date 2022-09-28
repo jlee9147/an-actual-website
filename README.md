@@ -1,4 +1,6 @@
 # my favorite foods to make
+baking and cooking have been hobbies of mine for as long as i have been allowed to be near the stove (my mom always thought i would burn the house down). over the years there are some definite favorites that i like to make the most.
+
 ## baking
 
 ### _chocolate chip cookies!_
