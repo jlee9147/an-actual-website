@@ -13,3 +13,6 @@ although i have not baked brownies from scratch yet, they are another of my favo
 i started baking bread when i was in elementary school for a project where we had to try something new and make a presentation on it. my first attempt did not go well, because when the dough was rising, it was too cold, so most of the yeast died. in the end, my mom just used the bread maker we have at home, but baking bread reminds me of these memories.
 
 ## cooking
+
+###_tteokbokki_
+tteokbokki is a popular korean dish and it was one of my favorite foods growing up. because i constantly wanted it, i asked my mom to teach me how to make it. it was a much more simple dish than i thought, and i ended up making it very often. ive stopped making it as often, but it is still a dish i occasionally enjoy making. 
