@@ -6,7 +6,8 @@ baking and cooking have been hobbies of mine for as long as i have been allowed 
 ### _chocolate chip cookies!_
 this was one of the first things i learned how to bake completely from scratch. i really enjoy making these because 1, they're good, and 2, they're easy to share with friends an family.
 
-![chocolate chip cookies by grongar](https://live.staticflickr.com/7222/7395683298_ca7e9738b8_b.jpg)
+![chocolate chip cookies](https://live.staticflickr.com/7222/7395683298_ca7e9738b8_b.jpg)
+(picture from [grongar](https://www.flickr.com/photos/70757891@N00)
 
 ### _brownies_
 although i have not baked brownies from scratch yet, they are another of my favorites for similar reasons to the chocolate chip cookies; they're delicious and easy to share with those i care about.
