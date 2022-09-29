@@ -15,6 +15,9 @@ although i have not baked brownies from scratch yet, they are another of my favo
 ### _bread_ 
 i started baking bread when i was in elementary school for a project where we had to try something new and make a presentation on it. my first attempt did not go well, because when the dough was rising, it was too cold, so most of the yeast died. in the end, my mom just used the bread maker we have at home, but baking bread reminds me of these memories.
 
+![bread](https://live.staticflickr.com/8072/8312093616_9bac051544_b.jpg)
+(picture from [editor b](https://www.flickr.com/photos/11018968@N00) on flickr)
+
 ## cooking
 
 ### _tteokbokki_
