@@ -25,3 +25,12 @@ i started baking bread when i was in elementary school for a project where we ha
 
 ### _tteokbokki_
 tteokbokki is a popular korean dish and it was one of my favorite foods growing up. because i constantly wanted it, i asked my mom to teach me how to make it. it was a much more simple dish than i thought, and i ended up making it very often. ive stopped making it as often, but it is still a dish i occasionally enjoy making. 
+
+![tteokbokki](https://live.staticflickr.com/7304/11412021516_990d1b81f7_b.jpg)
+(picture from [wendalicious](https://www.flickr.com/photos/25597828@N00) on flickr)
+
+### _fries/potato wedges_
+i've always loved eating potatos, and we always had them in the house, so one day i decided to try making potato wedges. since then i've been experimenting with different shapes, seasonings, etc. 
+
+![potato wedges](https://live.staticflickr.com/3559/3547161578_77295698cc_b.jpg)
+(picture from [su-lin](https://www.flickr.com/photos/15157510@N00) on flickr)
